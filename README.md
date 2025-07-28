@@ -1,3 +1,3 @@
-# Historinhas pra boi ninar!
+# Historinhas pra ovelha ninar!
 
 E testar projetos!
